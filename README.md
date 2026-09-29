@@ -15,7 +15,7 @@ I lead product strategy, digital transformation, and business development. While
 
 ### 🌐 Connect With Me
 - 💼 [LinkedIn](https://www.linkedin.com/in/madhav-jaybhaye-m2003)
-- 🌐 [Astrra Tech](https://astrratech.com) *(apni website ka link check kar lein)*
+- 🌐 [Astrra Tech](https://astrratech.com)
 - ✉️ [Email Me](mailto:contact@astrratech.com)
 
 ---
